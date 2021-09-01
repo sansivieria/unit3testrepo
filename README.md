@@ -14,7 +14,7 @@ Good luck, you'll need it. And perhaps a spectral analyzer wouldn't hurt, too.
 
 # My Favorite Online Instructors
 
-[__Arthur Brenier Jr__](https://youtu.be/6HKoAQ8TQDk)
+[__Arthur Brenier Jr__](https://youtu.be/DSCEj6ZuHVw)
 
 [__Magnardo "Nando" Tavarez__](https://youtu.be/Bs20uww1Tbc)
 
